@@ -1,0 +1,4 @@
+The two countries were still firing missiles at each other on Monday evening when Trump announced an elaborate ceasefire on his social media platform, claiming "Israel & Iran came to me, almost simultaneously, and said, “PEACE!” I knew the time was NOW. The World, and the Middle East, are the real WINNERS!"
+"Both Nations will see tremendous LOVE, PEACE, AND PROSPERITY in their futures. They have so much to gain, and yet, so much to lose if they stray from the road of RIGHTEOUSNESS & TRUTH. The future for Israel & Iran is UNLIMITED, & filled with great PROMISE," he said, in echoes of the verbal topspin he used to tamp down the India-Pakistan firefight.
+
+source: https://timesofindia.indiatimes.com/world/us/donald-trump-pulls-off-an-india-pakistan-on-israel-iran-forcing-ceasefire/articleshow/122039212.cms
